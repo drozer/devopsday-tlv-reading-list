@@ -18,4 +18,9 @@
 - In Search of Certainty - Mark Burguss
 - New Economics - Deming
 - Out of the Crisis - Deming
+- The Power of Presence: Unlock Your Potential to Influence and Engage Others - Kristi Hedges
+- Difficult Conversations: How to Discuss What Matters Most - Stone, Patton, Heen
+- Flying without a net: Turn Fear of Change into Fuel for Success - Thomas J. DeLong
+- The Rare Find, spotting exceptional talent before anyone else – G. Anders
+- Ranking the stars - Bob Eccles
 
